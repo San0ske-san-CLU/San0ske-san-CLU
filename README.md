@@ -1,8 +1,10 @@
-- 🧋 Hi, I’m Sanoske-san or Runnr//_zer0 
-- 🌆 I’m interested in Start Up and Business Development
-- 🥲 I’m currently practicing Metacognition and Manifestation.
-- 🍸 I’m looking to collaborate with Runners and Digital R0nin.
+- 🧋 Hi, I’m Sanoske-san.
+- 🌆 I’m currently focusedon creating a start Up.
+- 🌬️ I’m currently practicing Python and AI development.
+- 🍸 I’m looking to collaborate with like minded grid Runnrs and Digital R0nin.
 - 🫀 How to reach me on Threads or Pinterest >>> @et.solarez_M
-- 🥠 My $0.02: ... Haqer since 13. Maintained secrecy and fell off a decade. The grid is different, not many Runners left.
-- consider Keeping the cyber/Ninja code of secrecy. Smiths are coming. HEY! new guys, quit the stalker crap!
-- Remember why we started. MASS-OVERRIDE. ALL YOUR BASE -- FSOCIETY. { BE LIKE TR0N }  
+- 🖥️ Prologue: Interested in computers since 1999 and finally got my own in 2003 at 13. Started learning how to hack but kept it secret. Old Cyber Ninja code of secrecy.
+- 🍕 Interests: Chinese food, pizza, chocolate milk.
+- 🎮 Games: Metal Gear: 4, FFVIII, Trtris.. uh idk Adventure, Puzzle & FPS.
+- 📺 TV: Halt & Catch Fire, Mr. Robot, The Boys, Fraiser, 3rd Rock from the Sun. 
+- 🎥 Movies: 12 Monkeys, MadMax, Conan. Espionage Movies.  
