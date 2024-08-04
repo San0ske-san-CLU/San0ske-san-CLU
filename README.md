@@ -1,0 +1,8 @@
+- 🧋 Hi, I’m Sanoske-san or Runnr//_zer0 
+- 🌆 I’m interested in Start Up and Business Development
+- 🥲 I’m currently practicing Metacognition and Manifestation.
+- 🍸 I’m looking to collaborate with Runners and Digital R0nin.
+- 🫀 How to reach me on Threads or Pinterest >>> @et.solarez_M
+- 🥠 My $0.02: ... Haqer since 13. Maintained secrecy and fell off a decade. The grid is different, not many Runners left.
+- consider Keeping the cyber/Ninja code of secrecy. Smiths are coming. HEY! new guys, quit the stalker crap!
+- Remember why we started. MASS-OVERRIDE. ALL YOUR BASE -- FSOCIETY. { BE LIKE TR0N }  
